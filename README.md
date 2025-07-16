@@ -1,5 +1,10 @@
 # Crypto-miner-game-system-multi-use
 
+editing software is not illegal as long as it is for personal use may gift but not sell 🙏 
+
+
+
+
 Software Bio: Multi-Platform Crypto Mining Game System
 
 Name: CryptoPip Miner Game System
